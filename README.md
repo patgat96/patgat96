@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @patgat96 / Patrick Gatlin
+- 👀 I’m interested in CrossFit and family.
+- 🌱 I’m currently learning KM and introduction to programming.
+- 💞️ I’m looking to collaborate on something to be determined.
+- 📫 How to reach me - patgat96@gmail.com
